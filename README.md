@@ -1,1 +1,1 @@
-# like-comunity
+# like-community
